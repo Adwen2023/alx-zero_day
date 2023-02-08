@@ -1,0 +1,1 @@
+Ghana my motherland
